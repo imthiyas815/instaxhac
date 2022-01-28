@@ -1,1 +1,6 @@
 # instaxhac
+this tool hack instagram password 
+bypass to this script..
+hack on Instagram password ...
+wait and hack instagram password let be... waiting 
+better experience .. best tool for termux using to this script...
